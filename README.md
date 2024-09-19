@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- Olá, eu sou joâo vitor
+- sou, aluno e gosto de estuda
+- amo, carros e aprenter mais
+- minhas cores favoridas são, preto, roxo, e verde
